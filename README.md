@@ -1,2 +1,2 @@
-tun pech william andrei 
+tun pech william andrei
 2A programación vespertino
